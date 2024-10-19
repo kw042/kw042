@@ -1,5 +1,5 @@
 ## about me
-I am 24 years old, a student.
+po po po...
 <!--
 **kw042/kw042** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
